@@ -1,1 +1,1 @@
-# Project-8-Hotel-Ocean-website-Canva-
+You can view Website by clicking this link: https://hotelocean.my.canva.site/hotel
